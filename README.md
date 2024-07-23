@@ -3,4 +3,4 @@ hi
 ![](https://i.imgur.com/6R61BFn.jpeg)
 
  # [-gn skin] (https://mega.nz/file/wOBylazI#dNDgaofE85OdCbe_o0LXovibLPK77mjOuGNzdJPgjgM)
- ![] (https://imgur.com/a/78hfAzv.jpeg)
+ ![](https://imgur.com/a/78hfAzv.jpeg)
