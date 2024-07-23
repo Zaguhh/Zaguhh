@@ -18,3 +18,8 @@ skins i use
 
  # [rohulk 4.0](https://zaguh.s-ul.eu/ItxeNKK6)
  ![](https://i.imgur.com/8dHEAe9.jpeg)
+
+ # [vv_idke_trail](https://zaguh.s-ul.eu/etl0LdqG)
+ ![](https://i.imgur.com/jt5ovc2.jpeg)
+
+
