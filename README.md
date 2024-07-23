@@ -7,7 +7,7 @@ skins i use
 ![](https://i.imgur.com/KnIcJzR.jpeg)
 
 # [Clowncore](https://zaguh.s-ul.eu/aRA5X42V)
-![](https://i.imgur.com/0CCAxBa.jpeg)
+![](https://i.imgur.com/oGYpRdV.jpeg)
 
 
  # [-gn skin](https://zaguh.s-ul.eu/AENS7WHV)
