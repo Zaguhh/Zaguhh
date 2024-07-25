@@ -22,4 +22,8 @@ skins i use
  # [vv_idke_trail](https://zaguh.s-ul.eu/etl0LdqG)
  ![](https://i.imgur.com/jt5ovc2.jpeg)
 
-
+ # [siinaedit c](https://zaguh.s-ul.eu/XgVpbarn)
+ ![](https://i.imgur.com/biRmhsY.jpeg)
+ 
+https://i.imgur.com/biRmhsY.jpeg
+https://zaguh.s-ul.eu/XgVpbarn
