@@ -25,5 +25,3 @@ skins i use
  # [siinaedit c](https://zaguh.s-ul.eu/XgVpbarn)
  ![](https://i.imgur.com/biRmhsY.jpeg)
  
-https://i.imgur.com/biRmhsY.jpeg
-https://zaguh.s-ul.eu/XgVpbarn
